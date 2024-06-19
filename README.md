@@ -1,3 +1,4 @@
 - 👋 Hi, I’m @WoltersoderWolltersnicht
-- 📫 How to reach me aaaronwolters@gmail.com
+- 📫 How to reach me aaronsanchezwolters@gmail.com
+
 
